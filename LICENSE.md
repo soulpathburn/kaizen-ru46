@@ -1,4 +1,4 @@
-#  
+#  custom kaizen Scripts is the best kaizen Script, featuring unlimited stamina and anti-ban. Safe and powerful for all your needs.
 
 
 
